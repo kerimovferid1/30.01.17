@@ -14,6 +14,7 @@ her hansi bir A  menteqsinden B meteneqesine getmek istiyirem.Bu yolu ister teyy
 11)Caliwmaq lazimdir.Hec anlayiw yoxdur.
 
 Audience
+
 Trasnporlardan semereli istifade;
 Turistlerdir.Feedbackler esasinda olarcaq;
 Gezinti meqsedli
