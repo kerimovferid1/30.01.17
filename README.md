@@ -12,3 +12,18 @@ her hansi bir A  menteqsinden B meteneqesine getmek istiyirem.Bu yolu ister teyy
 9)Ola biler
 10)Az budce ile insanlarin ucuz tripine komek edecek
 11)Caliwmaq lazimdir.Hec anlayiw yoxdur.
+
+Audience
+Trasnporlardan semereli istifade;
+Turistlerdir.Feedbackler esasinda olarcaq;
+Gezinti meqsedli
+Trip gedecek yerler ne vaxt cataczaqlar haqqinda melumat alacaqlar
+
+Content
+
+Burada gelecekde saytda bilet ve bawqa otel bron falan elave olunacq
+Heleki ideya var;
+
+Communication
+Seyahet ucun eemiyyetlidir.
+ ilkin olaraq  saytda mawrut aqda melumat verilecek.
